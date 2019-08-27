@@ -2,4 +2,4 @@
 https://www.youtube.com/watch?v=eerp65VI_nM
 
 テトリス99史上初！？
-https://www.youtube.com/watch?v=eerp65VI_nM&t=50m
+https://www.youtube.com/watch?v=eerp65VI_nM&t=48m
