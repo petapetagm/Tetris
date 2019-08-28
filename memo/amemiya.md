@@ -4,3 +4,5 @@ https://www.youtube.com/watch?v=eerp65VI_nM
 テトリス99史上初！？
 https://www.youtube.com/watch?v=eerp65VI_nM&t=47m
 
+あめみやのとんでも置きミス
+https://youtu.be/creMcEst880?t=10600
